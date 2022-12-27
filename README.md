@@ -1,1 +1,1 @@
-PROJECT PREVIEW: https://nikolamat99.github.io/ANIMACJA/
+PROJECT PREVIEW: https://nikolamat99.github.io/ANIMATION/
